@@ -6,7 +6,7 @@ permalink: /about/
 
 ### About Me
 
-I am going into my last semester (hopefully) of my academic career at Hunter College. Apart from going to school full-time, I also work part-time at a bank. They are surprisingly flexible with my school schedule so even though working part-time and going to school full-time is not easy, it is not as bad as it could be.
+I am going into my last semester (hopefully) of my academic career at Hunter College. Currently looking for possible employment options after graduation.
 
 ### Personal Interests
 
